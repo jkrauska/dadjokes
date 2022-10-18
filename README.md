@@ -74,7 +74,6 @@ Do you know where you can get chicken broth in bulk? The stock market.
 Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
 Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
 Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
-Doctor: we're naming a disease after you.
 Don't buy flowers at a monastery. Because only you can prevent florist friars.
 Don't tell secrets in corn fields. Too many ears around.
 Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
