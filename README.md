@@ -213,7 +213,6 @@ Just watched a documentary about beavers… It was the best damn program I’ve 
 Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
 Man, I really love my furniture... me and my recliner go way back.
 Me and my mates are in a band called Duvet. We're a cover band.
-Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
 Milk is also the fastest liquid on earth – its pasteurized before you even see it
 My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
 My boss told me to attach two pieces of wood together... I totally nailed it!
